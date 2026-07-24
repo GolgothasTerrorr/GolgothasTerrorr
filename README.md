@@ -3,6 +3,8 @@
   ![](https://komarev.com/ghpvc/?username=golgothasterrorr&color=green&label=chud+visitors&abbreviated=true)
   <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
 
+<img width="100%" height="50%" alt="image" src="https://files.catbox.moe/l9qbgs.png" />
+
   ✦ . 　⁺ 　 . ✦ . 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=417B55&width=435&lines=%E2%95%8B%E2%94%81+howdy!+welcome+to+my+github+%E2%80%A7%E2%82%8A%CB%9A++%E0%B4%92" alt="Typing SVG" /></a>
 
@@ -25,3 +27,8 @@ $${\color{#F2F2F2} ◜૮ ྀི◞ ⸝⸝ ◟ ྀིაㅤlinks / socials ! \ �
 ໒⌣ྀི 　[straw](https://xavierstriderr.straw.page)‎ ‎ .‎ ‎ [ata](https://golgothasterrorr.atabook.org/)‎ 
   </div>
 <div align="center"> <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
+
+
+
+
+<img width="100%" height="50%" alt="image" src="https://files.catbox.moe/zwge1m.png" />
