@@ -40,7 +40,7 @@ $${\color{#F2F2F2} ◜ㅤlinks / socials ! \ ◞}$$<br>
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
 
 $${\color{#F2F2F2} ◜𓏼  Please \ Dncopy \ my \ ponies \ ⸝⸝ \ Ask \ 4 \ inspo . ꒱}$$<br>
-$${\color{#F2F2F2} ︶︶ Please \ also \ Whisper \ to \ INT . \  }$$<br>
-$${\color{#F2F2F2} Otherwise \ you \ may \ accidentally \ be \ ignored ⸝ }$$<br>
+$${\color{#F2F2F2} ︶ ˚̣̣̣ Please \ also \ Whisper \ to \ INT . \ 𓏵◞ }$$<br>
+$${\color{#F2F2F2} ꒰ Otherwise \ you \ may \ accidentally \ be \ ignored ⸝ }$$<br>
 
 <img width="90%" height="25%" alt="image" src="https://files.catbox.moe/ens2b1.png" />
