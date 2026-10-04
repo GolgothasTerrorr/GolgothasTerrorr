@@ -34,7 +34,7 @@ $${\color{#F2F2F2} ◜ㅤlinks / socials ! \ ◞}$$<br>
   </div>
 <div align="center"> <div>︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
 
-<img src="https://files.catbox.moe/d6cjm8.gif" width="160" height="30"/>
+<img src="https://files.catbox.moe/d6cjm8.gif" width="160" height="30"/> 
 
 
 <div align="center"> <div>︶︶︶ ๑ ♡ ๑ ︶︶︶</div>
